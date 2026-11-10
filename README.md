@@ -1,6 +1,6 @@
 # Hi there, I'm Riju Garg! 👋  
 
-🎓 **Currently Pursuing**: Master’s in General Economics at the **Madras School of Economics** (Class of 2025)  
+🎓 **Currently Role**: Research Intern, DEPR, Reserve Bank of India
 📍 **From**: New Delhi, Delhi  
 📚 **Passionate About**: Economic research, policy analysis, and unraveling the intricate dynamics between growth and sustainability.  
 
